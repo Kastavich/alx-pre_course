@@ -1,1 +1,1 @@
-My first readme
+Kumnandi uhlala udakiwe
